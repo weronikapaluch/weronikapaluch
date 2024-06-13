@@ -3,6 +3,6 @@
 - 🌱 I’m currently learning fundamental skills, to have a strong base for future endeavours 🚀🚀
 - 💞️ I’m looking to collaborate on projects big and small! Open to anything :) 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: The word for cannibal in Turkish is yamyam 
+- ⚡ Fun fact: The diehard, modern Swifties have given rise to a new linguistic phenomenon, called the "fanilect"!
 
 
